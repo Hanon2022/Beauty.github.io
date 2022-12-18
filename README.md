@@ -1,2 +1,2 @@
 # Beauty.github.io
-Selamat Datang 
+Selamat Datang Beauties
